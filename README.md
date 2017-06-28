@@ -66,3 +66,17 @@
 [网门oGate](http://3.dedu.me) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
 
 QQ或360浏览器流氓拦截请放行。
+
+#!/bin/bash
+if [ -n "$2" ]; then
+   curl -i https://git.io -F url=https://github.com/dedu2017/truth -F code=hope;
+
+HTTP/1.1 100 Continue
+
+HTTP/1.1 201 Created
+
+Location: https://git.io/hope
+
+else
+    curl -i http://git.io -F url=https://github.com/"$1";
+fi
