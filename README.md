@@ -1,6 +1,6 @@
  ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 神韵:中国古典舞 
 
-  ** 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 https://git.io/sy
+  ** 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 https://git.io/wu
   
 
 <img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg"></a>
@@ -90,7 +90,7 @@
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
-[提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
+[提交网址1](http://rong.yov.li/?ogST.aspx?&from=apple)  [提交网址2](http://78.dedu.me/?ogST.aspx?&from=apple) 
 ------------------------------------------------------------
 
 ### ▶ 精彩网站 · 免翻直连
