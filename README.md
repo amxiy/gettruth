@@ -2,11 +2,11 @@
 
   ** 网址不定期更新，连不上时，请不同时间再试试。
   
-  ** 封锁严厉！请收藏 https://git.io/dedu 
-  
+  ** 封锁严厉！请收藏 https://git.io/sy
+  
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
-<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
+<img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg"></a>
 
 神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧，他们个个身手不凡，代表当今世界中国古典舞的最高水准。
 
@@ -14,12 +14,12 @@
 
  请点击图片在线观看：
  
-<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
+<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg" width="639"></a>
 
 中国古典舞介绍：
 中国古典舞是五千年庞大中华文化基奠中，艺术体系里面的一种肢体表演形式。几千年来，它在民间、宫廷以及传统的戏剧中世代相传，历经各朝文化的基奠和淬炼，最终发展成为世界上最完整、庞大的舞蹈体系之一。
 
-<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
+<a href="http://git.io/HNvvvQ"><img src="ttps://github.com/dedu2017/truth/blob/master/sstill2-600x298.jpg></a>
 
 神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧。（视频截图）
 
