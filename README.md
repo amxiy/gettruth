@@ -1,10 +1,9 @@
- ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 翻越红墙！
+ ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 神韵:中国古典舞 
 
   ** 网址不定期更新，连不上时，请不同时间再试试。
   
   ** 封锁严厉！请收藏 https://git.io/sy
   
-**请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
 <img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg"></a>
 
@@ -14,20 +13,19 @@
 
  请点击图片在线观看：
  
-<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg" width="639"></a>
+<a href="http://rong.yov.li/?c=816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg" width="639"></a>
 
 中国古典舞介绍：
 中国古典舞是五千年庞大中华文化基奠中，艺术体系里面的一种肢体表演形式。几千年来，它在民间、宫廷以及传统的戏剧中世代相传，历经各朝文化的基奠和淬炼，最终发展成为世界上最完整、庞大的舞蹈体系之一。
 
-<a href="http://git.io/HNvvvQ"><img src="ttps://github.com/dedu2017/truth/blob/master/sstill2-600x298.jpg></a>
-
+<img src="https://github.com/dedu2017/truth/blob/master/still2-600x298.jpg"></a>
 神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧。（视频截图）
 
 中国古典舞讲究“身韵”、“身法”和“技巧”。“舞”、“武”同源，只是表现方式不同，要求不同。“文”、“舞”相融，经过五千年中华文化的基奠以及历代艺人的实践、提炼、整理和加工，中国古典舞不断地丰富，形成了带有独特华夏民族韵味的“身法”、“身韵”以及完整的一套跳、转、翻，各类组合动作与毯子功（包括各种高空翻腾、技巧式的跳跃及各种旋转等）的高难度“技巧”。中国古典舞是建立在深厚的传统美学基础上的舞蹈艺术，它对世界其它舞蹈体系和体育的影响都很大，现代芭蕾和体操中都能看到中国古典舞的身影。
 
 ------------------------------------------------------------
 ### ▶ 更多精彩请访问「网门」，点击图片可直达
-<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
+<a href="http://rong.yov.li/?from=apple&tag=5258" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 ------------------------------------------------------------
 ### ▶打开天窗,听一听外面的声音...
    <td align=center>  
