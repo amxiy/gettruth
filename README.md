@@ -1,9 +1,9 @@
 
-## 欢迎来到翻越红墙 看真相！
-![](https://raw.githubusercontent.com/osurf/up/master/tu2.gif)
 
-打开天窗,听一听外面的声音...
-<A href="http://free.dedu.me/?c803941">看动态网，晓天下事，点击访问</A>
+
+
+
+
 
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
@@ -43,16 +43,7 @@
 [提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
 
 ------------------------------------------------------------
-![](https://raw.githubusercontent.com/osurf/up/master/tu4.gif)
 
-### ▶ 了解法轮功（法轮大法）真相，闻道、得法、修炼，万古机缘一瞬间。
-
-[点击访问明慧网](http://t.cn/Ri80wPK) 
-
-[备用1](http://li.1x.de)
-[备用2](http://fa.x9.eu)
-
-------------------------------------------------------------
 ### ▶ 精彩网站 · 免翻直连
 <a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
 <a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
