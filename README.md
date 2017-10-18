@@ -66,21 +66,6 @@
 <a href="https://d229rk9l49nnml.cloudfront.net/cangzishi.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="123"></a>
 
 ------------------------------------------------------------
-### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！
-![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
-
-<a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a><a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
-
-进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
-
-快声明退出党、团、队，抹去兽的印记,拥有美好未来！
-
-[提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
-
-------------------------------------------------------------
-
-
-
 
 ### ▶ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
 ✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
@@ -102,6 +87,18 @@
 <a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
 <a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
 <a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
+
+------------------------------------------------------------
+### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！
+![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
+
+<a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a><a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
+
+进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
+
+快声明退出党、团、队，抹去兽的印记,拥有美好未来！
+
+[提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
 ------------------------------------------------------------
 [网门oGate](http://3.dedu.me) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
 
