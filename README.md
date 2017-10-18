@@ -1,8 +1,6 @@
  ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 神韵:中国古典舞 
 
-  ** 网址不定期更新，连不上时，请不同时间再试试。
-  
-  ** 封锁严厉！请收藏 https://git.io/sy
+  ** 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 https://git.io/sy
   
 
 <img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg"></a>
@@ -25,6 +23,7 @@
 中国古典舞讲究“身韵”、“身法”和“技巧”。“舞”、“武”同源，只是表现方式不同，要求不同。“文”、“舞”相融，经过五千年中华文化的基奠以及历代艺人的实践、提炼、整理和加工，中国古典舞不断地丰富，形成了带有独特华夏民族韵味的“身法”、“身韵”以及完整的一套跳、转、翻，各类组合动作与毯子功（包括各种高空翻腾、技巧式的跳跃及各种旋转等）的高难度“技巧”。中国古典舞是建立在深厚的传统美学基础上的舞蹈艺术，它对世界其它舞蹈体系和体育的影响都很大，现代芭蕾和体操中都能看到中国古典舞的身影。
 
 ------------------------------------------------------------
+
 ### ▶ 更多精彩请访问「网门」，点击图片可直达
 <a href="http://rong.yov.li/?from=apple&tag=5258" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 ------------------------------------------------------------
@@ -84,11 +83,10 @@
 ------------------------------------------------------------
 
 ### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！
-![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
-
 <a href="https://github.com/tomalltruthforyou/truth/issues/24" target="_blank"><img src="https://cloud.githubusercontent.com/assets/19661132/18463039/21e6a12c-7955-11e6-8296-d97a8015ee71.jpg" height="160"></a><a href="https://d225dz4ufcfbcz.cloudfront.net/santui/index.html" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402060/1958dbe8-fe6b-11e5-8899-833073b01eee.jpg" width="412" height="160"></a>
 
 进化论是邪说，是凭空的遐想，骂人是猿是兽，无神论是撒旦邪党散布的弥天大谎，骗人的鬼话，毁了人的归宿！撒旦邪党建立了红色政权，别叫欺世红魔害自己，听信谎言将随红魔淘汰解体。
+![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
