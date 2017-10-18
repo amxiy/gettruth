@@ -1,20 +1,24 @@
-
-
-
-
-
-
-
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
-### ▶ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
-✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
-[【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
+<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
 
+神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧，他们个个身手不凡，代表当今世界中国古典舞的最高水准。
+
+神韵艺术团是全球顶级中国古典舞与传统音乐艺术团。2006年成立于美国纽约。神韵艺术团云集了大批精英艺术家，为恢复与弘扬中国传统文化艺术，不断缔造新的奇迹与辉煌，备受世人瞩目。神韵的宗旨是复兴五千年神传文化。2017演季开始，神韵的五个艺术团同时在世界各地开始巡回演出，每一年的演出都有一套全新的舞蹈节目、全新的音乐、服装、动态天幕和歌唱曲目。
+
+ 请点击图片在线观看：
+<a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
+
+中国古典舞介绍：
+中国古典舞是五千年庞大中华文化基奠中，艺术体系里面的一种肢体表演形式。几千年来，它在民间、宫廷以及传统的戏剧中世代相传，历经各朝文化的基奠和淬炼，最终发展成为世界上最完整、庞大的舞蹈体系之一。
 
 <a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
-<a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
-<a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
+
+神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧。（视频截图）
+
+中国古典舞讲究“身韵”、“身法”和“技巧”。“舞”、“武”同源，只是表现方式不同，要求不同。“文”、“舞”相融，经过五千年中华文化的基奠以及历代艺人的实践、提炼、整理和加工，中国古典舞不断地丰富，形成了带有独特华夏民族韵味的“身法”、“身韵”以及完整的一套跳、转、翻，各类组合动作与毯子功（包括各种高空翻腾、技巧式的跳跃及各种旋转等）的高难度“技巧”。中国古典舞是建立在深厚的传统美学基础上的舞蹈艺术，它对世界其它舞蹈体系和体育的影响都很大，现代芭蕾和体操中都能看到中国古典舞的身影。
+
+传统文化的内涵和丰富的舞蹈语汇使得中国古典舞具有极其丰富的表现力，能表现人的各种情感、性格与故事情节。从三皇五帝的远古到历朝历代的兴替，从神话传说、宗教信仰、传统价值到人文故事、风俗民情、诗文歌赋，都可以在流传至今的舞蹈戏曲中窥见一斑。可以说中国古典舞是五千年中华神传文化的承传和延续方式之一，是人类文化历史长河中一块最璀璨的艺术瑰宝。
 ------------------------------------------------------------
 ### ▶ 精彩禁片请访问「网门」
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
@@ -41,6 +45,20 @@
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
 
 [提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
+
+------------------------------------------------------------
+
+
+
+
+### ▶ 一键翻墙 ✪ 简单快速的翻墙软件 ✪ 即时更新
+✓完全免费 &nbsp;&nbsp;&nbsp; ✓免安装  &nbsp;&nbsp;&nbsp;  ✓无插件无广告  &nbsp;&nbsp;&nbsp; 
+[【软件介绍】](https://github.com/tomalltruthforyou/truth/issues/1)
+
+
+<a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
+<a href="http://git.io/2S1IBQ" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8963614/a7cea12a-35fb-11e5-8285-2c052e5ea386.jpg" width="200"  height="60"  hspace= 15></a>
+<a href="https://git.io/fgp" target="_blank"><img src="https://cloud.githubusercontent.com/assets/13546896/8962833/542b236c-35f7-11e5-9b6b-5ecef4e6a46e.jpg" width="200"  height="60" ></a></p>
 
 ------------------------------------------------------------
 
