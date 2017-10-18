@@ -1,3 +1,9 @@
+ ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 翻越红墙！
+
+  ** 网址不定期更新，连不上时，请不同时间再试试。
+  
+  ** 封锁严厉！请收藏 https://git.io/dedu 
+  
 **请记录收藏本网页，里面的网址或软件失效时，我们会及时更新，欢迎广传！**
 
 <a href="http://git.io/HNvvvQ"><img src="https://cloud.githubusercontent.com/assets/13546896/8962834/542bc3b2-35f7-11e5-8cd8-d275cecec187.jpg" width="200"  height="60"></a>
