@@ -20,7 +20,7 @@
 中国古典舞讲究“身韵”、“身法”和“技巧”。“舞”、“武”同源，只是表现方式不同，要求不同。“文”、“舞”相融，经过五千年中华文化的基奠以及历代艺人的实践、提炼、整理和加工，中国古典舞不断地丰富，形成了带有独特华夏民族韵味的“身法”、“身韵”以及完整的一套跳、转、翻，各类组合动作与毯子功（包括各种高空翻腾、技巧式的跳跃及各种旋转等）的高难度“技巧”。中国古典舞是建立在深厚的传统美学基础上的舞蹈艺术，它对世界其它舞蹈体系和体育的影响都很大，现代芭蕾和体操中都能看到中国古典舞的身影。
 
 ------------------------------------------------------------
-### ▶ 精彩禁片请访问「网门」
+### ▶ 更多精彩请访问「网门」，点击图片可直达
 <a href="https://github.com/ogate/ogate/blob/master/README.md" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14478287/b9c5c8a4-0157-11e6-8366-5f4616f09815.jpg" width="639"></a>
 ------------------------------------------------------------
 ### ▶打开天窗,听一听外面的声音...
@@ -78,17 +78,6 @@
 
 ------------------------------------------------------------
 
-### ▶ 精彩网站 · 免翻直连
-<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
-<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
-<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
-<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
-<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
-<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
-<a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
-<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
-
-------------------------------------------------------------
 ### ▶ 我要三退　快退出共产党、共青团、少先队，保平安！
 ![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
 
@@ -100,6 +89,17 @@
 
 [提交网址1](http://t.cn/RIULD8f)  [提交网址2](http://t.cn/R633XhM) 
 ------------------------------------------------------------
+
+### ▶ 精彩网站 · 免翻直连
+<a href="https://d225ex0c1s7z40.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279279/bbdc2e1e-fb6f-11e5-8931-ead48e618dc9.JPG" width="317" height="91"></a>
+<a href="https://d2gjcnxwl842bc.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279305/ecd90f00-fb6f-11e5-9209-9e87ac83a894.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14402096/9e16edb0-fe6c-11e5-98c0-93af6a9f5eaa.jpg" width="317" height="91"></a>
+<a href="https://d26yldu3tsydd.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279322/039e9a2a-fb70-11e5-8113-b008899a802e.jpg" width="317" height="91"></a>
+<a href="https://d2v176tbnajwgp.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279334/19cc6c14-fb70-11e5-87a4-2f6a69794ce3.jpg" width="317" height="91"></a>
+<a href="https://d3dze9dx01h3rk.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279352/2d0be4c6-fb70-11e5-94c3-3c2850922930.jpg" width="317" height="91"></a>
+<a href="https://dfocbrl2lfmvs.cloudfront.net/do/Q_aZ/xiLgkjxzaAhg9LxjX/" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279252/933a6c1e-fb6f-11e5-9a76-3a443b1dc962.jpg" width="317" height="91"></a>
+<a href="http://d2yo55qh5v3h5b.cloudfront.net" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14279366/3c3df178-fb70-11e5-86f1-38a9771cf3db.jpg" width="317" height="91"></a>
+
 [网门oGate](http://3.dedu.me) | [无界网络](https://github.com/bannedbook/fanqiang/wiki#to-wjw) | [广传真相平台](https://github.com/bannedbook/fanqiang/wiki#gczxpt)| [大纪元新闻网](http://t.cn/Ri80wPo)
 
 QQ或360浏览器流氓拦截请放行。
