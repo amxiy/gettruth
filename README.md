@@ -89,7 +89,6 @@
 ![](https://raw.githubusercontent.com/osurf/up/master/tu3.gif)
 
 快声明退出党、团、队，抹去兽的印记,拥有美好未来！
-
 [提交网址1](http://rong.yov.li/?ogST.aspx?&from=apple)  [提交网址2](http://78.dedu.me/?ogST.aspx?&from=apple) 
 ------------------------------------------------------------
 
