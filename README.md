@@ -16,12 +16,6 @@
 中国古典舞介绍：
 中国古典舞是五千年庞大中华文化基奠中，艺术体系里面的一种肢体表演形式。几千年来，它在民间、宫廷以及传统的戏剧中世代相传，历经各朝文化的基奠和淬炼，最终发展成为世界上最完整、庞大的舞蹈体系之一。
 
-<img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg"></a>
-
-神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧。（视频截图）
-
-中国古典舞讲究“身韵”、“身法”和“技巧”。“舞”、“武”同源，只是表现方式不同，要求不同。“文”、“舞”相融，经过五千年中华文化的基奠以及历代艺人的实践、提炼、整理和加工，中国古典舞不断地丰富，形成了带有独特华夏民族韵味的“身法”、“身韵”以及完整的一套跳、转、翻，各类组合动作与毯子功（包括各种高空翻腾、技巧式的跳跃及各种旋转等）的高难度“技巧”。中国古典舞是建立在深厚的传统美学基础上的舞蹈艺术，它对世界其它舞蹈体系和体育的影响都很大，现代芭蕾和体操中都能看到中国古典舞的身影。
-
 ------------------------------------------------------------
 
 ### ▶ 更多精彩请访问「网门」，点击图片可直达
@@ -67,7 +61,7 @@
 <a href="https://github.com/tomalltruthforyou/truth/issues/2" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/16539004/df8f319a-4024-11e6-9584-67c22b06b3fe.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/3" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375612/ea4de28c-fda5-11e5-98cd-3d62dbc535ef.jpg" width="317" height="123"></a>
 <a href="https://github.com/tomalltruthforyou/truth/issues/20" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/15447859/364d5398-1f93-11e6-9688-e715efe6ab75.jpg" width="317" height="123"></a>
-<a href="https://d229rk9l49nnml.cloudfront.net/cangzishi.mp4" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="123"></a>
+<a href="https://s3.eu-central-1.amazonaws.com/ogatef/oGate.htm?cc816770&from=apple" target="_blank"><img src="https://cloud.githubusercontent.com/assets/18081243/14375609/ea4c21fe-fda5-11e5-95f8-c123c2420cb8.jpg" width="317" height="123"></a>
 
 ------------------------------------------------------------
 
