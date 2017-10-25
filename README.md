@@ -3,7 +3,7 @@
   ** 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 https://git.io/wu
   
 
-<img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg"></a>
+<a href="http://rong.yov.li/?c=816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/gettruth/blob/master/1.gif" width="639"></a>
 
 神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧，他们个个身手不凡，代表当今世界中国古典舞的最高水准。
 
@@ -11,7 +11,7 @@
 
  请点击图片在线观看：
  
-<a href="http://rong.yov.li/?c=816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/truth/blob/master/still11-600x400.jpg" width="639"></a>
+<a href="http://rong.yov.li/?c=816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/gettruth/blob/master/1.gif" width="639"></a>
 
 中国古典舞介绍：
 中国古典舞是五千年庞大中华文化基奠中，艺术体系里面的一种肢体表演形式。几千年来，它在民间、宫廷以及传统的戏剧中世代相传，历经各朝文化的基奠和淬炼，最终发展成为世界上最完整、庞大的舞蹈体系之一。
