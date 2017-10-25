@@ -3,7 +3,7 @@
   ** 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 https://git.io/wu
   
 
-<a href="http://rong.yov.li/?c=816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/gettruth/blob/master/1.gif" width="639"></a>
+<a href="http://rong.yov.li/?c=816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/gettruth/blob/master/still11-600x400.jpg" width="639"></a>
 
 神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧，他们个个身手不凡，代表当今世界中国古典舞的最高水准。
 
