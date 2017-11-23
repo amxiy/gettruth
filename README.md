@@ -1,10 +1,6 @@
  ## <img src="https://github.com/dedu2017/xw/blob/master/y_0034.gif" ></a>欢迎来到 神韵:中国古典舞 
 
   ** 网址不定期更新，连不上时，请不同时间再试试。 封锁严厉！请收藏 https://git.io/wu
-  
-
-<a href="http://rong.yov.li/?c816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/gettruth/blob/master/%E7%A5%9E%E9%9F%B5%E4%B8%AD%E5%9B%BD%E8%88%9E%E6%8E%A8%E5%B9%BF_11.jpg" width="639"></a>
-
  <tr>
     <td align=center>请尝试不同通道，进入动态网址<br/>
 <a href="https://s3-us-west-1.amazonaws.com/ogaten/oGate.htm?c816711&from=apple&tag=5788">✪ 动态网址一..........</a>
@@ -18,9 +14,9 @@
       <a href="https://s3-ap-southeast-2.amazonaws.com/ogatey/oGate.htm?c816711&from=apple&tag=6578">✪ 动态网址九</a><br/>
       微信如提示停止访问该网页，须先点击右上角，选择浏览器打开
     </td>
-  </tr>
+  </tr>  
 
-
+<a href="http://rong.yov.li/?c816711&from=apple&tag=254" target="_blank"><img src="https://github.com/dedu2017/gettruth/blob/master/%E7%A5%9E%E9%9F%B5%E4%B8%AD%E5%9B%BD%E8%88%9E%E6%8E%A8%E5%B9%BF_11.jpg" width="639"></a>
 
 神韵艺术团的艺术家们在2017年中秋佳节之际，展示中国古典舞技巧，他们个个身手不凡，代表当今世界中国古典舞的最高水准。
 
